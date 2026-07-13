@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm Currently trying to learn web development and Python 
+Every living human being is a slave to something
 
 
 ## 🌐 Socials:
