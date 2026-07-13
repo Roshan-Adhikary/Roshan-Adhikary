@@ -1,5 +1,6 @@
 # 💫 About Me:
-Every living human being is a slave to something
+Hi!
+Whoever is viewing this hope his/her day goes well
 
 
 ## 🌐 Socials:
