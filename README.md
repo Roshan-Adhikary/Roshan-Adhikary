@@ -1,5 +1,6 @@
 # 💫 About Me:
-Hi!
+Hi! There is nothing extra to tell about me.
+
 Whoever is viewing this hope his/her day goes well
 
 
